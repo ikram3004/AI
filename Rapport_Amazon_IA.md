@@ -1,6 +1,7 @@
 # AMAZON ET L'INTELLIGENCE ARTIFICIELLE
 ### Stratégie et performance financière 2024–2025
 *Rapport analytique — Février 2026*
+![kiko  - Copy](https://github.com/user-attachments/assets/fe5455fc-f271-482f-94c8-be98be6610a0)
 
 ---
 
